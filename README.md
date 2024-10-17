@@ -1,5 +1,5 @@
 ## About Me
-Hello world!! My name is Cindy (she/her) and I'm in the DPEA. 😺
+Hello world!! My name is Cindy and I am a student in the DPEA 😺
 
 HOBBIES:
 - drawing 🎨
