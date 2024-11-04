@@ -1,7 +1,4 @@
 ## About Me
-Hello world!! My name is Cindy and I am a student in the DPEA 😺
+Hi! My name is Cindy and I am a senior in the DPEA 😺
 
-HOBBIES:
-- drawing 🎨
-- reading 📚
-- cooking 🥐
+My academic interests line around anything STEM related. In particular I have been learning to program and am interested in web design. You can check out my engineering portfolio at 2025mechatronicscindytat.weebly.com :) I also enjoy drawing, reading, and cooking in my spare time.
